@@ -1,2 +1,1 @@
-verified: Blavos SOCKET: blavosbaba
-verified: Blavos SOCKET: girayyılmaz
+verified: [DESKTOP-PUOC8J1] SOCKET: [blavosbaba]
