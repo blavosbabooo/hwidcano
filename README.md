@@ -1,1 +1,1 @@
-verified: DESKTOP-PUOC8J1 SOCKET: blavosbaba VOLUME: 3740958227
+verified (blavos):206227235
