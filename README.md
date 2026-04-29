@@ -7,3 +7,5 @@ ağzinabozaladigimbariszuzu:3241426761
 veled:{aa4e2fd0-0142-11f0-9509-806e6f6e6963}
 azizim:2074929929
 titan:769291552
+obez murat alagavat: 759145354
+murat cafer eroğlu 😃:351469487
