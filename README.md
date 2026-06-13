@@ -6,10 +6,10 @@ prestij:3457373408
 ağzinabozaladigimbariszuzu:3241426761
 veled:blavosbaba! //old
 azizim:2074929929
-titan:1270318540
+titan:2058785786
 obez murat alagavat: 759145354
 kaan eroğlu 😃:351469487
 chechen:1431007594
-kofik:banned /1
+kofik:2486721692
 kofik: banned /2
 liderpoisonabi:emre abi hardwareid
