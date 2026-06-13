@@ -10,5 +10,6 @@ titan:1270318540
 obez murat alagavat: 759145354
 kaan eroğlu 😃:351469487
 chechen:1431007594
-kofik:banned 
-kofik: banned
+kofik:banned /1
+kofik: banned /2
+liderpoisonabi:emre abi hardwareid
