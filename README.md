@@ -13,4 +13,5 @@ chechen:1431007594
 banned:2486721692
 kofik: banned /2
 liderpoisonabi:emre abi hardwareid
+can:3206673905
 
