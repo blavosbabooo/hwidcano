@@ -2,7 +2,7 @@ blavos:2100998611
 hasaniho:3102949679
 cihat:2330401427
 can:3922278182
-prestij:3457373408
+prestij:901375042
 ağzinabozaladigimbariszuzu:3241426761
 veled:blavosbaba! //old
 azizim:2074929929
