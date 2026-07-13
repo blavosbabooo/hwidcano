@@ -5,7 +5,7 @@ can:3922278182
 prestij:901375042
 ağzinabozaladigimbariszuzu:3241426761
 veled:blavosbaba! //old
-azizim:2074929929
+azizim:1003654699
 titan:3974138076
 obez murat alagavat: 759145354
 kaan eroğlu 😃:351469487
